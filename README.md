@@ -1,1 +1,1 @@
-2024 December 7th
+December 7th 2024
